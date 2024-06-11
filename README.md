@@ -1,0 +1,1 @@
+# Schengen-visa-refusal-for-Kazakhsta-citizens
